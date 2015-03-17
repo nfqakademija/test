@@ -1,4 +1,4 @@
-M8s7 projektas bus pats šauniausias ir geriausias
+Mūsų projektas bus pats šauniausias ir geriausias
 
 Pridedu naujų eilučių
 
