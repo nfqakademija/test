@@ -1,1 +1,1 @@
-M8s7 projektas bus pats šauniausias
+Mūsų projektas bus pats šauniausias
